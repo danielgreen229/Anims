@@ -1,2 +1,2 @@
 # Anims
-![hippo](https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif)
+![hippo](https://media.giphy.com/media/ii82TjWxmwCY3esqlM/giphy.gif)
